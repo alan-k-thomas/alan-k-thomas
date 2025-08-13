@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Alan K Thomas  
+# 👋 Hey there, I'm Alan K Thomas✨
 
 🎓 **BCA (Hons) in AI & Data Science** @ Amrita University, Kochi  
 💻 **Aspiring Software Developer** | Future AI & Data Science Specialist  
