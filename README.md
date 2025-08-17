@@ -24,7 +24,7 @@
 
 ## 📫 How to Reach Me
 - **Email:** alankthomas3@gmail.com  
-- **Instagram (Music):** @the_alan_keys https://www.instagram.com/the.alan.keys?igsh=OXhrZXFtZTRsZzIx&utm_source=qr  
+- **Instagram:** @the_alan_keys https://www.instagram.com/the.alan.keys?igsh=OXhrZXFtZTRsZzIx&utm_source=qr  
 - **LinkedIn:** https://www.linkedin.com/in/alankthomas3/  
 
 ---
