@@ -1,6 +1,6 @@
 # 👋 Hey there, I'm Alan K Thomas✨
 
-🎓 **BCA (Hons) in AI & Data Science** @ Amrita University, Kochi  
+🎓 **BCA (Hons) in AI & Data Science** @ Amrita Vishwavidyapeedam, Cochin Campus  
 💻 **Aspiring Software Developer** | Future AI & Data Science Specialist  
 🎹 **Musician & Founder** of Rainbow Music School  
 🚀 On a mission to blend **technology & creativity** for impactful solutions  
